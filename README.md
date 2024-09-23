@@ -2,7 +2,7 @@
 - 👀 I’m interested by code
 - 🌱 I’m currently learning the code
 - 💞️ I’m looking to collaborate alone
-- 📫 How to reach me Discord
+- 📫 How to reach me: Discord
 - 😄 Pronouns: Mat
 - ⚡ Fun fact: I'm very creative
 
