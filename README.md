@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BlackIce852
-- 👀 I’m interested by code
+- 👀 I’m interested by games
 - 🌱 I’m currently learning the code
 - 💞️ I’m looking to collaborate alone
 - 📫 How to reach me: Discord
